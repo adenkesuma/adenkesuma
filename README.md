@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **adenfdfd10@gmail.com**
 
-- ⚡ Fun fact **I think i should study harder**
+- ⚡ Fun fact **I think i should learn harder**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
